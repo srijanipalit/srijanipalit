@@ -3,5 +3,6 @@ Passionate about applying mathematical approaches to solve real-world problems. 
 
 
 Reach me at my LinkedIn account. 
+
 linkedin.com/in/srijani-palit
 
